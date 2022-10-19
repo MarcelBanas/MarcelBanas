@@ -1,5 +1,5 @@
-21 y.o studying and interning in RedHat
-interested in Python
+21 y.o studying and interning in RedHat \n
+interested in Python \n
 You can reach me on instagram: https://www.instagram.com/marcel_banas/
 
 <!---
