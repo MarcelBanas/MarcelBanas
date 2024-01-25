@@ -1,4 +1,4 @@
-22 y.o studying and interning in RedHat
+23 y.o studying and interning in RedHat
 
 You can reach me on linkedin in case you are interested in private repos (school projects etc.)
 https://www.linkedin.com/in/marcel-banas-56a734235/
